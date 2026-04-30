@@ -38,5 +38,9 @@ SOMBRA DE ARBOLES
 
 SUEÑOS DE ABUELA
 
+usar personas extrañas o ajenas que mi abuela no conozca personas inventadas 
+
+
+
 
 
